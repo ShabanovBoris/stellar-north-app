@@ -17,4 +17,4 @@ We at "Stellar North" highly respect your privacy. Our goal is to provide you wi
     We may update this Privacy Policy in the future if the app's functionality changes (e.g., with the addition of cloud sync). We will notify you of any significant changes via the app's store listing description.
 
 5.  **Contact Us**
-    If you have any questions about this Privacy Policy, please contact us at: [Your Contact Email]
+    If you have any questions about this Privacy Policy, please contact us at: zzhollowzzz@gmail.com
